@@ -12,9 +12,9 @@
 
 - 📄 Know about my experiences [https://1drv.ms/w/s!AsFMFvFzBi_9hKpgjcFySy387AvL-g?e=5rXsm6](https://1drv.ms/w/s!AsFMFvFzBi_9hKpgjcFySy387AvL-g?e=5rXsm6)
 
-- ⚡ Fun fact **I am funny.**
+- ⚡ Fun fact **I love travelling.**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: 7042512015</h3>
 <p align="left">
 </p>
 
