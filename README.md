@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **palgaurav19067@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/w/s!AsFMFvFzBi_9hKpgjP0car2fGEejjw?e=y3fyQw](https://1drv.ms/w/s!AsFMFvFzBi_9hKpgjP0car2fGEejjw?e=y3fyQw)
+- 📄 Know about my experiences ([https://1drv.ms/w/s!AsFMFvFzBi_9hKpgjP0car2fGEejjw?e=y3fyQw](https://drive.google.com/file/d/1cQPTc9x7PpuL16wDs98y5kW3iahA7SrR/view?usp=sharing))
 
 - ⚡ Fun fact **I love travelling.**
 
