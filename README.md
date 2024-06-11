@@ -4,7 +4,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=gauravpal2004&label=Profile%20views&color=0e75b6&style=flat" alt="gauravpal2004" /> </p>
 
-- 🌱 I’m currently learning **Big Data**
+- 🌱 I’m currently learning **Generative AI**
 
 - 👨‍💻 All of my projects are available at [https://github.com/gauravpal2004](https://github.com/gauravpal2004)
 
